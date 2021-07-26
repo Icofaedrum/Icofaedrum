@@ -5,3 +5,11 @@
 - My pronouns are she/her
 - That's all
 - I don't know why I'm here
+-
+- Also I'm bad at grammar :(
+- The (is) in option 2, is supposed to be (are)
+- But I didn't realize that because I'm dumb
+- 
+- Alrighty, thanks for reading!
+- Hope you're doing great <3
+- I love you!
