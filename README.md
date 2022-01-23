@@ -12,4 +12,3 @@
 - 
 - Alrighty, thanks for reading!
 - Hope you're doing great <3
-- I love you!
